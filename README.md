@@ -1,2 +1,1 @@
-# ngewetobrutindo
-ngewetobrutindo
+# [ngewetobrutindo](https://ngewetobrutindo.pages.dev)
